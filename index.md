@@ -1,4 +1,4 @@
-## Welcome to [144000](http://redeemers.144000/) the official lightworkers domain!!
+## Welcome to [redeemer1.144000](http://redeemer1.144000/) of [144000](http://redeemers.144000/) lightworkers domain!!
 
 This is redeemer1.144000 the first subdomain and page!
 
