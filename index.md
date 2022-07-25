@@ -6,4 +6,4 @@ Here is [redeemer2.144000](http://redeemer2.144000/) the second subdomain and pa
 
 Lets see how many can be built!!
 
-Inquiry [bthespirit777](https://proton.me/)
+Inquiry [bthespirit777@proton.me](mailto://bthespirit777@proton.me/) 
